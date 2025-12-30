@@ -2,8 +2,8 @@
 ---
 
 #### About me:
-- robotics
+- systems + society (assistive tech, mit serc, other fun projects!)
 - perpetually cold :)
-- can't survive *with* coffee/caffeine (ha)
+- can't survive *with* coffee/caffeine (ha) though I do love tea
 - "never tell me the odds!"
 ---
